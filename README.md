@@ -31,4 +31,5 @@ Explore my projects and let's learn together. I'm always looking to connect and 
 
 ---
 
-_**𝓗𝓮𝓽 𝓲𝓼 𝓫𝓮𝓽𝓮𝓻 𝓽𝓮 𝓿𝓮𝓬𝓱𝓽𝓮𝓷 𝓿𝓸𝓸𝓻 𝓲𝓮𝓽𝓼, 𝓭𝓪𝓷 𝓽𝓮 𝓵𝓮𝓿𝓮𝓷 𝓿𝓸𝓸𝓻 𝓷𝓲𝓮𝓽𝓼.**_ – Michiel de Ruyter
+_**Het is beter te vechten voor iets, dan te leven voor niets.**_ 
+– Michiel de Ruyter
