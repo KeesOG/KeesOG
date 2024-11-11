@@ -25,7 +25,7 @@ Hey there! I'm KeesOG, diving deep into the world of tech with a passion for:
 
 ### 📫 Let's Connect
 - **📧 Email**: KeesOGDev@outlook.com
-- **🐦 Twitter/X**: x.com/KeesOGDev
+- **❌ Twitter/X**: [@KeesOGDev](https://x.com/KeesOGDev)
 
 Explore my projects and let's learn together. I'm always looking to connect and collaborate with fellow tech enthusiasts!
 
